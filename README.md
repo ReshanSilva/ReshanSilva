@@ -14,7 +14,7 @@
 
 - 🌱 I’m currently learning **Machine Learning**
 
-- 📫 How to reach me **sadmal04that@gmail.com**
+- 📫 How to reach me **saveeshasilva2003@gmail.com **
 </td>
 <td width="50%" align="center">
 
